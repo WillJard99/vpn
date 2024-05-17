@@ -9,4 +9,4 @@ About 每日分享免费节点、免费机场、ssr节点、v2ray节点、v2ray�
 
 每日更新
 
-https://www.hax-vpn.top
+https://hax-wall.top
