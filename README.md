@@ -11,4 +11,4 @@ About 每日分享免费节点、免费机场、ssr节点、v2ray节点、v2ray�
 
 https://sub.nodetele.com/
 
-仅需 8元一月
+全转发 仅需 8元一月
